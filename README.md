@@ -12,7 +12,7 @@ Event Attendees
 - Random Gurney
 - Matthew Legere
 - Trevor Gallant
-- Kirsten Meadere
+- Kirsten Meader
 - Trey Meader
 - Aaron Cameron
 - Erica Lynch-Ferrier
