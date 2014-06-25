@@ -6,5 +6,12 @@ Noob-To-Ninja event - 2014
 
 Event Attendees
 ================
-Justin Donnaruma
-Peyton Meader
+
+Trey Meader
+
+Kirsten Meader
+
+Erica Ferrier
+
+
+
